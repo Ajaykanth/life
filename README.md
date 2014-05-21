@@ -1,4 +1,0 @@
-life
-====
-
-God damn good!
